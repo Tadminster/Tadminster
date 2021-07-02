@@ -7,7 +7,7 @@ I've been making custom maps in Warcraft and Starcraft before, <br>
 and I'm majoring in computer science in earnest from 2021. <br>
 
 <br/><br/>
-● ● ● ● ●
+● 　 ● 　 ● 　 ● 　 ●
 <br/><br/><br/>
 
 <strong>🤍🤍🤍🤍🧡 my stack is.. </strong><br>
